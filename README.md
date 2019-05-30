@@ -32,5 +32,5 @@ Biological Definition of a planksip® through Long Term Potentiation (LTP).
 
 In a distal playground of thought, the daily chunks are never digested in the present.
 
-What type of learning is taking place? It's not the memorization of a phone number or a flashbulb childhood memory. The learning captured and reconstituted is the ah-ha moment of non-linear excitation where the learner learns. Learning isn't the problem, the recall function is where cognition falls off. Wikkenstein's beetle in the box points to the beetle as the ambiguous representation of the language game, the box contains the subjective experience. The planksip® is this container, the ontological framework, the mnemonic worthy of myelination. (with your help we shall reconcile Epistemology). 
+What type of learning is taking place? It's not the memorization of a phone number or a flashbulb childhood memory. The learning captured and reconstituted is the ah-ha moment of non-linear excitation where the learner learns. Learning isn't the problem, the recall function is where cognition falls off. Wittgenstein's beetle in the box points to the beetle as the ambiguous representation of the language game, the box contains the subjective experience. The planksip® is this container, the ontological framework, the mnemonic worthy of myelination. (with your help we shall reconcile Epistemology). 
 
