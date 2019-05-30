@@ -25,7 +25,8 @@ As planksip® supporters, contributors and potential programmers move outside th
 
 The Artificial-Intelligence literature defines an ontology in many different ways and these definitions often contradict one another. The Gadfly app utilizes a working definition of ontology as a formal non-specific framework of concepts in the domain of thought propagation. As far as I am aware, the 'non-specific' aspect of the ontology is the difference between the Gadfly ontology and other Artificial-Intelligent frameworks. However, the properties of each concept are limited by role restrictions (sometimes referred to as facets) and properties of each concept describe various features and attributes of the planksip®.
 
-Biological Definition of a planksip® through Long Term Potentiation (LTP). 
+Biological Definition of a planksip® through Long Term Potentiation (LTP).
+
 In a distal playground of thought, the daily chunks are never digested in the present.
 
 What type of learning is taking place? It's not the memorization of a phone number or a flashbulb childhood memory. The learning captured and reconstituted is the ah-ha moment of non-linear excitation where the learner learns. Learning isn't the problem, the recall function is where cognition falls off. Wikkenstein's beetle in the box points to the beetle as the ambiguous representation of the language game, the box contains the subjective experience. The planksip® is this container, the ontological framework, the mnemonic worthy of myelination. (reconcile Epistemology). 
