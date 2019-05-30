@@ -8,8 +8,7 @@ This is the day that I tell you all a little bit more about planksip®, specific
 
 Do I contradict myself?
 Very well then I contradict myself,
-(I am large, I contain multitudes.)
- - Walt Witman
+(I am large, I contain multitudes.) - Walt Whiman
 
 In this particular instance, a metaphor for the aggregate of metaphysics that myelinates a slurry of thought into something more concrete actually presupposes the presupposition. Statements are in themselves not only declarations but experienced Plutonic ideals. Future experience is anticipated awareness (Sanderson 2020), a movement towards something concrete and defined is worth pursuing. Definitions define action potentials through the taxonomies and linguistic structures contained within and throughout all philosophical definitions of ontology. The canon of computer science isolated the metaphysical aspect of the ontological experience - explicit formal specifications of the terms in the domain and relations among them (Gruber 1993) - by decoupling the subjective from the objective. The pivot point for artificial intelligence is a matter of bifurcation and information flow. In fact, it's instrumental. Are you missing the point? Read on. 
 
